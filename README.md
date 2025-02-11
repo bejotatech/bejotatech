@@ -32,7 +32,7 @@ Atendemos **pequenos comerciantes** e **empreendedores** que desejam digitalizar
 ## 📞 Contato  
 Quer saber mais ou precisa de uma solução personalizada? Entre em contato com a gente!  
 
-- **Instagram**: [@bejotatech.solutions](#)  
+- **Instagram**: [@bejotatech](#)  
 - **E-mail**: bejotatech.solutions@gmail.com  
 
 Estamos ansiosos para ajudar você a crescer com tecnologia!  
